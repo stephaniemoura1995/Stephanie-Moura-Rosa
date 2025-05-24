@@ -6,9 +6,9 @@
 🧑🏽‍🎓 Eletricista De Manutenção Industrial 
 🫅🏽Nasci Em 02/12/1995
 🙏🏽Frequento A Igreja Dos Santos Dos Últimos Dias e Luto Pela Paz Mundial
-💖 Faço Graduação Na Uniasselvi De Educação Física Bacharelado / Programação É Um Hobby Para Mim / Um Passa Tempo
+💖 Faço Graduação Na Uniasselvi De Inteligencia Artificial e Machine Learning / Programação É Um Hobby Para Mim / Um Passa Tempo
 🇧🇷Brasileira 
-❤️Amo Comer Frutos Do Mar e Amo Comer Chocolate 
+❤️Amo Comer Frutos Do Mar e Comer Chocolate 
 🌻 Girassol É Minha Flor Preferida 
 
 <div style="display: inline_block"><br>
