@@ -1,7 +1,6 @@
 # Stephanie-Moura-Rosa
 📚 Estudante De Hardware Robótica 
-🧑🏽‍💻Programação
-🖥️nformática
+🖥️Informática e Hardware e Programação 
 💡Técnico Em Mecatrônica Com Premiação no CREA V RJ
 🧑🏽‍🎓 Eletricista De Manutenção Industrial 
 🫅🏽Nasci Em 02/12/1995
